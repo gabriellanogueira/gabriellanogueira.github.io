@@ -15,4 +15,4 @@ Atualmente particpo de iniciação científica, na área de Fenômenos de Transp
 
 **Amante de gatos**
 
-![Gatinho batendo as patinhas na mesa](https://giphy.com/gifs/cat-nft-9cat-vVegyymxA90fkY8jkE)
+![Gatinho batendo as patinhas na mesa](![image](https://user-images.githubusercontent.com/107768751/201720291-f5c3381d-d47a-4263-bc2f-910e0036056d.png))
