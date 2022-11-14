@@ -10,3 +10,9 @@ Atualmente particpo de iniciação científica, na área de Fenômenos de Transp
 - Github
 - ROSA do saber
 - LIFE
+
+## Pessoal
+
+**Amante de gatos**
+
+![Gatinho batendo as patinhas na mesa](https://giphy.com/gifs/cat-nft-9cat-vVegyymxA90fkY8jkE)
